@@ -11,5 +11,5 @@
 
 
 iwannanomnommnom,...
+<img width="241" height="239" alt="j j j j" src="https://github.com/user-attachments/assets/dd7a0470-118e-4e5e-8d5c-91a1da9f3877" />
 
-<img width="378" height="306" alt="j j j j" src="https://github.com/user-attachments/assets/71769481-4a22-4a06-a558-0b5a35715030" />
