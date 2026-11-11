@@ -10,5 +10,10 @@
 
 
 
-iwannanomnommnom,..
+
+
+
+
+
 <img width="901" height="239" alt="j j j j" src="https://github.com/user-attachments/assets/273b06f4-7830-47d2-964e-a727dc3f91fc" />
+iwammanomnom,,,,,,,
